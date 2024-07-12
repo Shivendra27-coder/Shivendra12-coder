@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Shivendra11-coder
 - 👀 I’m interested in ...drawing and making good friends 
 - 🌱 I’m currently learning ...coding and more sketching
-- 💞️ I’m looking to collaborate on ...data scientist 🥼
+- 💞️ I’m looking to collaborate on ... Bachelor in computer applications 🥼
 - 📫 How to reach me ...from my instagram handle : shivendra_sks.27
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...I can't handle my anger . 
